@@ -24,7 +24,7 @@ Patrick stood up from the dining table and his neck still craned to watch his bi
 
 Sandra took all this in from her spot near the fridge where she stood fixing lunch for Patrick, herself, and Katie.
 
-“<Ding>” a phone buzzed somewhere in the house bringing Sandra back from her reverie. It was her phone. She had almost left the house without it yet again. She walked briskly to the bedroom and fished out the phone from behind the pillows. A mail alert…It would have to wait. 
+“*Ding*” a phone buzzed somewhere in the house bringing Sandra back from her reverie. It was her phone. She had almost left the house without it yet again. She walked briskly to the bedroom and fished out the phone from behind the pillows. A mail alert…It would have to wait. 
 
 She kissed Katie on the top of her head as she came back into the kitchen. Patrick was winding up his video. They had never been a morning kisses type of couple anyway. She grabbed her lunch box and stuck it in her bag.
 
