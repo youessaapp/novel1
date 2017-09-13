@@ -2,7 +2,7 @@
 
 “Katie!” Sandra hollered, “are you up yet? Do you need help brushing your teeth?”
 
-Patrick breezed into the kitchen in his pajamas and singlet carrying his laptop. He was running a little bit behind schedule caught up in a birding video on Youtube. Groggily, he reached in the cupboard for a coffee cup, spooned into some instant coffee, topped off the cup with water from the fridge, and stuck the cup in the microwave. He punched in a precise 1:19 on the timer. 
+Patrick breezed into the kitchen in his pajamas and singlet carrying his laptop. He was running a little bit behind schedule caught up in a birding video on Youtube. Groggily, he reached in the cupboard for a coffee cup, spooned in some instant coffee, topped off the cup with water from the fridge, and stuck the cup in the microwave. He punched in a precise 1:19 on the timer. 
 
 “Still sleeping, huh?” he asked. “I’ll go check.” 
 
