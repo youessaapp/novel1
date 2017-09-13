@@ -1,3 +1,5 @@
+## Chapter 3
+
 Patrick glanced over his shoulder. His office mates had left for lunch. The floor was empty. Patrick leaned back on his chair for a second, then quickly opened a few new tabs in succession - first was Amazon, then came his favorite birding subreddit, and then the YouTube channel of Simone McKinley, a quiet blonde who knew everything there was to know about birding in North America or so it seemed to Patrick.
 
 This was his ultimate escape. Birding had been his consuming passion for nearly a decade now. Sandra, supportive as she was, did not see the appeal of hiking through backcountry only to wait quietly, binoculars in hand to see plumage on a bird and to silently argue with others over what bird they were sighting.
